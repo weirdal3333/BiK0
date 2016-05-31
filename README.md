@@ -1,2 +1,2 @@
 # BiK0
-TBA
+Battle infinitely Knowing Void -- The Real World
